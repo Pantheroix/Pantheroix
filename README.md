@@ -6,7 +6,6 @@
 - Email:adityakumarthakur779@gmail.com;
 - Insta:aditya_kumar1295;
 - Twitter or x: @KumarAdity78688;
-- 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
 <!---
