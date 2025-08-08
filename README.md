@@ -6,7 +6,7 @@
 - Email:adityakumarthakur779@gmail.com;
 - Insta:aditya_kumar1295;
 - Twitter or x: @KumarAdity78688;
-- ⚡ Fun fact: ...
+- ⚡ linkedin:www.linkedin.com/in/aditya-kumar-thakur-921aa0339
 
 <!---
 Pantheroix/Pantheroix is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
